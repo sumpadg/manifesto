@@ -1,0 +1,1 @@
+bruce mao's manifesto
